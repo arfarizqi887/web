@@ -1,2 +1,2 @@
-# web
+# RE:ZERO
 RE:ZERO
